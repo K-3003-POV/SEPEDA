@@ -10,3 +10,16 @@ AND
 8 996987 420042
 ♡ ♡♡♡♡♡ ♡♡♡♡♡
 PR. DUBAI KODE PRODUKSI : 1Jam/6Hari/1Bulan 12Jam Siang
+
+*api cepat padam
+*asap cepat menggumpal 
+*rasa cepat berekspresi
+*bau cepat mengelilingi (suara nomor 1)
+*asap tertinggi di sudut yang di maksud
+*getaran meminimalkan saat terjadi penghisapan
+*harga pokok terdaftar hologram 
+*istimewa di tempat terang maupun gelap
+*sumber asap lebih pasti 
+*memiliki minyak lebih-pada merek sebelumnya
+
+
