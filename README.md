@@ -24,5 +24,12 @@ PR. DUBAI KODE PRODUKSI : 1Jam/6Hari/1Bulan 12Jam Siang
 *disarankan untuk membakar makanan
 *disarankan untuk memasak makanan
 *tidak disarankan untuk memanjat
+*digunakan pada minyak matang
+*digunakan untuk kebutuhan dapur rumah makan
+*digunakan untuk memperlambat waktu
+*dipakai untuk foto bertualang
+*dipakai untuk menutup penjualan barang/hari
+*dipakai untuk berpakaian sendiri
+
 
 
