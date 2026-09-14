@@ -21,5 +21,8 @@ PR. DUBAI KODE PRODUKSI : 1Jam/6Hari/1Bulan 12Jam Siang
 *istimewa di tempat terang maupun gelap
 *sumber asap lebih pasti 
 *memiliki minyak lebih-pada merek sebelumnya
+*disarankan untuk membakar makanan
+*disarankan untuk memasak makanan
+*tidak disarankan untuk memanjat
 
 
